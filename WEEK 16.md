@@ -9,3 +9,9 @@ While much of the album is focused on individual empowerment and self-expression
 ![image](https://user-images.githubusercontent.com/118990959/225637977-34b86ee9-52f7-40f4-afa6-742eacd13cef.gif)
 
 Overall, the album's title track, "Prototype," is perhaps the most explicit example of posthumanist themes, with its lyrics about transcending human limitations and becoming something more than human. It is also a thought-provoking and innovative album that combines cutting-edge musical production with provocative themes related to technology, identity, and the future of humanity.
+
+References:
+
+Reference 1: Zuyou Wang and Houliang Chen. (2012) After Post-Humanism -- The New Trend of the Westerners' Questioning Spirit in the 21st Century.
+
+Reference 2: Lxing Li. (2017) Post-humanism: Superman or non-human.
